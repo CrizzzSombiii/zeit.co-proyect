@@ -1,1 +1,1 @@
-# zeit.co-proyect by Crizzsombiii
+# zeit.co-proyect by DrCrizzsombiii
